@@ -1,7 +1,7 @@
 # 📱 Forsaken x Opera GX Rewards — Mobile Players
 
-> 🐰 Made with love by **Gubby Photon** &lt;3  
-> ⭐ Credit to **Ryxllers** for the original method
+> 🐰 Made with love by [**Gubby Photon**](https://www.youtube.com/@PhotonRBLX) &lt;3  
+> ⭐ Credit to [**Ryxllers**](https://www.youtube.com/@Ryxllers) for the original method
 
 ---
 
